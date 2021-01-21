@@ -1,1 +1,0 @@
-# prescient-design.github.io
